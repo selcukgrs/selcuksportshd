@@ -5,4 +5,5 @@ Selçuksports, özellikle futbol alanında faaliyet gösteren ve çeşitli spor 
 selçuksports, selçuk sports, selçuk sports tv, selcuksports, selcuksportshd, selcuksports, selcuksport, selcuksporthd, selcuksportshd.live, selcuksportshd, selcuksport, selcuksportshd.biz, selcuksportshd.xyz
 # 🔴 Selcuksportshd İle Kesintisiz Futbol Keyfi 
 Selçuksports Canlı Maç İzle - Selcuksports İzle - Selçuksport - Selçuk Sports İzle - Selçuk Sports TV - Selçuk Sports Giriş
+# 📺 Selcuksportshd Giriş
 ⚽️ Selçuksports ile kesintisiz yayınla spor keyfi!nı çıkarın. Selçuk sports canlı maç izle seçeneğiyle futbol ve diğer karşılaşmaları Full HD kalitede takip edin.
